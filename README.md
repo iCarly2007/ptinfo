@@ -1,8 +1,10 @@
 # pt info
-i am mainly afk so if you want to talk ur best bet is whispering
+i am mainly offtab so if you want to talk ur best bet is whispering
 <br>
-i dont mind if you sit with me (unless im already sitting with someone), though if we arent friends id appreciate if you whisp first
+i dont mind if you sit with me just give me a heads up first
 <br>
-i love talking 2 ppl!! i dont usually interact first, but when i do, please b nice :3 
+i love talking to people haaaaaaaai
 <br>
-i really appreciate crowns they make me happy :-)
+i really appreciate crowns they make me happy
+<br>
+i hide freely and frequently sorry
